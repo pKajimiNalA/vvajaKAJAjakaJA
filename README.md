@@ -2,9 +2,9 @@
 
 Hace 13 seg-Las redes sociales han estallado luego de que se reportara en las tendencias que un supuesto video íntimo de la joven cantante “El siri” y el rapero Tekashi69, se filtró a la red.
 
-🟠👉 [HAZ CLIC AQUÍ PARA VER FILTRACIÓN AHORA](https://t.co/w6un7WCBIv) 
+🟠👉 [HAZ CLIC AQUÍ PARA VER FILTRACIÓN AHORA](https://alamikani71681.blogspot.com/2024/10/yashaxed.html) 
 
-🟠👉 [HAZ CLIC AQUÍ PARA VER FILTRACIÓN AHORA](https://t.co/w6un7WCBIv)
+🟠👉 [HAZ CLIC AQUÍ PARA VER FILTRACIÓN AHORA](https://alamikani71681.blogspot.com/2024/10/yashaxed.html)
 
 Varios medios de comunicación latinos con sede en Estados Unidos y cuentas de Instagram han asegurado que fue la cantante quien publicó las imágenes en sus redes sociales y las borró de inmediato.
 
